@@ -1,3 +1,3 @@
 Call Yo Mama
-diddy is jealous
+diddy is jealous, nini behave
 # GhostWorld
